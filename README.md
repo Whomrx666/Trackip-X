@@ -48,4 +48,4 @@ This is a tool for education only, I am not responsible for any misuse
 ### Visitors :
 ![Visitor Count](https://profile-counter.glitch.me/Whomrx666/count.svg)
 
-Happy tracking
+<b>Happy tracking mate : ]<b>
